@@ -1,1 +1,0 @@
-# sectoon-practice
